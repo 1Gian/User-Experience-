@@ -12,7 +12,11 @@ keeping things alitle to easy with paper<br>
 based diary studies followed by exit interviews <br>
 and always been pleased with the results.
 
-####Few things I learned :
+####Few tips through:
+
++How to capture the images?
++Materials 
++Say and do
 
 
 
