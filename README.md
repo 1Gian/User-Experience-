@@ -3,13 +3,13 @@ Design
 
 #### Thinking + 
 
-What produces the desing we produce.
-Diary studies are great for capturing 
-interactions with a product 
+What produces the desing we produce.<br>
+Diary studies are great for capturing<br>
+interactions with a product<br>
 or service which play out over time.
 
-keeping things alitle to easy with paper
-based diary studies followed by exit interviews 
+keeping things alitle to easy with paper<br>
+based diary studies followed by exit interviews <br>
 and always been pleased with the results.
 
 ####Few things I learned :
